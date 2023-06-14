@@ -1,4 +1,4 @@
 # welcome to the club, buddy!
 
-fuck you, leatherman
-efefsrewf
+love you, leatherman
+ehehehehe
